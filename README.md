@@ -1,1 +1,1 @@
-# otdelnn
+# COPYRIGHT KARRIWEB
